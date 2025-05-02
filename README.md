@@ -1,1 +1,2 @@
-[politica_privacidade_github_pages_dalpiero.zip](https://github.com/user-attachments/files/20012060/politica_privacidade_github_pages_dalpiero.zip)
+# Política de Privacidade – MAIO GPT ÉPICO
+Publicado via GitHub Pages para uso no ChatGPT Builder.
