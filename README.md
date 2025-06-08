@@ -1,2 +1,2 @@
-# Política de Privacidade – MAIO GPT ÉPICO
+# Política de Privacidade – Junho
 Publicado via GitHub Pages para uso no ChatGPT Builder.
